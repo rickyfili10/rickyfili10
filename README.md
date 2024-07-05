@@ -4,7 +4,7 @@
 👥️ I’m looking to collaborate on anything i'm intrested on, and if you ask me, I will probably be able to join your project too!<br>
 📫 How to reach me riccardofilier@protonmail.com or https://discord.com/invite/WWAE3svdkg --> our coding community<br>
 👍 Useless curiosities:<br>
-🎶🤘 My favorite bands are Nirvana, Metallica & Guns 'n Roses r🤘🎶<br>
+🎶🤘 My favorite bands are Nirvana, Metallica & Guns 'n Roses 🤘🎶<br>
 🚴 I like cycling (only with a mountain bike beacuse is more fun) 🚴<br>
 📱 My favorite phone brand is Samsung 📱<br>
 🎭 I rooted my phone (yeah i know that nobody care)🎭<br>
