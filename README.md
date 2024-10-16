@@ -2,7 +2,7 @@
 👀 I’m interested in Cyber-security, ethical hacking, coding and IT in general (Yes, like @Lif28)<br>
 💻️ I’m currently learning Python, HTML & Hardware.<br>
 👥️ I’m looking to collaborate on anything i'm intrested on, and if you ask me, I will probably be able to join your project too!<br>
-📫 How to reach me riccardofilier@protonmail.com
+📫 How to reach me? riccardofilier@protonmail.com<br>
 👍 Useless curiosities:<br>
 🌎 I can speak English and Italian!🌍<br>
 🎶🤘 My favorite bands are Nirvana, Metallica & Guns 'n Roses 🤘🎶<br>
