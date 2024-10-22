@@ -6,7 +6,7 @@
 📱 Android Fan (Especially for Samsung) <br>
 👍 Useless curiosities:<br>
 🌎 I can speak English and Italian!🌍<br>
-🎶🤘 My favorite bands are Nirvana, Metallica & Guns 'n Roses 🤘🎶<br>
+🎶🤘 My favorite bands are Nirvana, Metallica & Guns 'n Roses (And maybe Led Zeppelin to)🤘🎶<br>
 🎸 I also play guitar (a red stratocaster) but i am not that good at it... 🎸<br>
 🚴 I like mountain bike🚴<br>
 📱 My favorite phone brand is Samsung 📱<br>
