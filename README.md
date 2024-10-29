@@ -3,7 +3,7 @@
 💻️ I’m currently learning Python, HTML & Hardware. But i know a little bit of C++, C, Asm x86 (For asm x86 only theory) and JavaScript<br>
 👥️ I’m looking to collaborate on anything i'm intrested on, and if you ask me, I will probably be able to join your project too!<br>
 📫 How to reach me? riccardofilier@protonmail.com<br>
-📱 Android Fan (Especially for Samsung) <br>
+📱 Samsung fan <br>
 👍 Useless curiosities that nobody care:<br>
 🌎 I can speak English and Italian!🌍<br>
 🎶🤘 My favorite bands are Nirvana, Metallica & Guns 'n Roses🤘🎶<br>
