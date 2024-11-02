@@ -6,8 +6,8 @@ Tech enthusiast, aspiring cybersecurity, and all-around IT fan! Here's a bit abo
 - 💻️ Currently Learning: Python, HTML, and Hardware fundamentals. I also know a bit of C++, C, x86 Assembly (theory), and JavaScript<br>
 - 👥 Open to Collaborate: If it's exciting and techy, I'm in! Just reach out, and I’ll likely join your project 🚀<br>
 - 📫 Contact Me: riccardofilier@protonmail.com<br>
-- 📱 Samsung Fan: Proud of it (and yes, I rooted my phone!)<br>
-- 🎸 Fun Facts Nobody Asked For:<br><br>
+- 📱 Samsung Fan: Proud of it (and yes, I rooted my phone!)<br><br>
+- 🎸 Fun Facts Nobody Asked For:<br>
 
 - 🌎 I’m bilingual! I speak English and Italian<br>
 - 🎶🤘 Favorite bands: Nirvana, Metallica & Guns 'n Roses<br>
