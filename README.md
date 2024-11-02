@@ -13,3 +13,4 @@
 🎭 I rooted my phone 🎭<br>
 🛜 You can find my on Instagram, TikTok, Facebook, BeReal, X, Snapchat & Threads --> @rickyfili10 🛜<br>
 👍 If you want to help me with projects or want to start one with me I'll be happy to do it! Don't be afraid to contact me! 👍<br>
+<img src="https://i.imgur.com/6tu60vO.gif" width= "300000" alt="horizontal super thin rainbow RGB line">
