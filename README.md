@@ -1,6 +1,6 @@
 <img src="https://i.imgur.com/6tu60vO.gif" width="100%" alt="horizontal rainbow line">
 👋 Hi, I’m @rickyfili10<br>
-Tech enthusiast, aspiring cybersecurity pro, and all-around IT fan! Here's a bit about me:<br><br>
+Tech enthusiast, aspiring cybersecurity, and all-around IT fan! Here's a bit about me:<br><br>
 
 - 👀 Interests: Cybersecurity, ethical hacking, coding, and everything IT (Yep, inspired by @Lif28)<br>
 - 💻️ Currently Learning: Python, HTML, and Hardware fundamentals. I also know a bit of C++, C, x86 Assembly (theory), and JavaScript<br>
