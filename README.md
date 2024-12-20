@@ -11,7 +11,7 @@ Tech enthusiast, aspiring cybersecurity, and all-around IT fan! Here's a bit abo
 
 - 🌎 I’m bilingual! I speak English and Italian<br>
 - 🎶🤘 Favorite bands: Nirvana, Metallica & Guns 'n Roses<br>
-- 🎸 I play guitar (a red Stratocaster) though I’m still learning!<br>
+- 🎸 I play guitar (a red Stratocaster) though I’m still learning! (I know little and I'm always out of time 👍)<br>
 - 🛜 Find Me On: Instagram, TikTok, Facebook, BeReal, X, Snapchat & Threads ➔ @rickyfili10<br>
 - 👍 Want to collaborate? Don’t hesitate to reach out!<br>
 
