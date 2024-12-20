@@ -3,7 +3,7 @@
 Tech enthusiast, aspiring cybersecurity, and all-around IT fan! Here's a bit about me:<br><br>
 
 - 👀 Interests: Cybersecurity, ethical hacking, coding, and everything IT<br>
-- 💻️ Currently Learning: Python, HTML, and Hardware fundamentals. I also know a bit of C++, C, x86 Assembly (theory), and JavaScript<br>
+- 💻️ Currently Learning: Python, HTML, and Hardware fundamentals. I also know a bit of C++, C and x86 Assembly (theory)<br>
 - 👥 Open to Collaborate: If it's exciting and techy, I'm in! Just reach out, and I’ll likely join your project 🚀<br>
 - 📫 Contact Me: riccardofilier@protonmail.com<br>
 - 📱 Samsung Fan: Proud of it (and yes, I rooted my phone!)<br><br>
