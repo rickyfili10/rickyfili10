@@ -5,7 +5,7 @@ Tech enthusiast, aspiring cybersecurity, and all-around IT fan! Here's a bit abo
 - 👀 Interests: Cybersecurity, ethical hacking, coding, and everything IT<br>
 - 💻️ Currently Learning: Python, HTML, and Hardware fundamentals. I also know a bit of C++, C and x86 Assembly (theory)<br>
 - 👥 Open to Collaborate: If it's exciting and techy, I'm in! Just reach out, and I’ll likely join your project 🚀<br>
-- 📫 Contact Me: ask my email on a issue on a repostory!<br>
+- 📫 Email: Ask for it!<br>
 - 📱 Samsung Fan: Proud of it<br><br>
 
 
